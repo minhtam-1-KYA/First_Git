@@ -1,1 +1,1 @@
-hello world ! I love you KimAnh <3
+I love you KimAnh <3
